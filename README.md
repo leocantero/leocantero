@@ -38,7 +38,7 @@ I am currently working on professionalizing my digital presence and developing a
 ### 📬 Let's Connect
 * **LinkedIn:** [https://www.linkedin.com/in/leonel-cantero](https://www.linkedin.com/in/leonel-cantero-2728951b7/)
 * **Email:** leoneladriancantero@gmail.com
-* *English and Spanish speaker. Feel free to reach out in either language!*
+* **Languages:** English (B2 Upper-Intermediate, AACI Certified), Spanish (Native).
 
 ---
 *Always curious, continuously learning, and open to collaborative technical challenges.*
